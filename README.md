@@ -5,5 +5,5 @@
 - 📫 How to reach me [contact@bethelamadi.com
 - 😄 Pronouns: ... He/Him
 - ⚡ Fun fact: ... Comedy 
-
-Bethel Amadi is a multifaceted individual - YouTuber, entrepreneur, software developer, content creator, businessman, engineer, creative writer, and internet personality.
+- 🤑 Business: ... Entrepreneur
+Bethel Amadi is a multifaceted individual - YouTuber, entrepreneur, software developer, content creator, businessman, engineer, creative writer, and internet Personality.
